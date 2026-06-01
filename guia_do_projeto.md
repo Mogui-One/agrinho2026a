@@ -1,0 +1,1 @@
+Esse projeto tem como objetivo ... feito por Lucas do 3 ano do ensino médio do colégio estadual Curitiba em Paranavaí
